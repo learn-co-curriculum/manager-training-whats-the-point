@@ -1,0 +1,1 @@
+# manager-training-whats-the-point
